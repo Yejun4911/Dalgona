@@ -1,3 +1,4 @@
 # Dalgona
 
-[활동포트폴리오_최예준 (1).pdf](https://github.com/Yejun4911/Dalgona/files/7074430/_.1.pdf)
+![활동증명서](https://user-images.githubusercontent.com/61110132/131290641-97469640-5a47-4117-90a1-29b386681640.PNG)
+
